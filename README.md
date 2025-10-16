@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Marina Marques
-- 📫 How to reach me mmarques@tractian.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Love games!
 
